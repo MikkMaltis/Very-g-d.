@@ -1,2 +1,0 @@
-# Very-g-d.
-Yes.
